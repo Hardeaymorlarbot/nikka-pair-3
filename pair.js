@@ -71,7 +71,7 @@ ______________________________________
 ║
 ║bot repo👇
 ║
-║⬡ *QUEEN_NIKKA:* _Thanks for you so much for supporting_
+║
 ║⬡ *Eliminatot-V1:* _https://github.com/Hardeaymorlarbot/Eliminator-V1_
 ║
 ║⬡Support channels⬡
